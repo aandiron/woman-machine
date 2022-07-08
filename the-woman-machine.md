@@ -53,13 +53,13 @@ His big hands advanced up my thighs and came to rest on my hips. His lips were a
 
 I thrust my hips forward against him, and guiding me with his hands he helped me find the hard bulge in his jeans. Its presence was obvious even through the thick material. I rolled my hips back and forth, crushing my clit up against his rock. The bar was not exactly well-lit, but it was certain that many people --- maybe everyone in the place --- was sneaking sidelong, furtive glances in our direction, jealously wishing they were themselves the hottest couple in the bar making out in front of the dozens of dirty bikers in "The Snakes" (or whatever) and their associated hangers-on.
 
-I fake-fucked him in that foul bar, grinding against his cock until he was so hard that I thought he might be in danger of cumming right there. My lips found his ear, and I moaned softly so that only he could hear. I said, "this is what it would be like if I were fucking you."
+I fake-fucked him in that foul bar, grinding against his cock until he was so hard that I thought he might be in danger of cumming right there. My lips found his ear, and I moaned softly so that only he could hear. And I said, "this is what it would be like if I were fucking you."
 
 He pulled his head back and caught my eye. "I want to fuck you."
 
 I leaned back. I put my hand on his broad chest and pushed back. I stepped back. "I told you. I'm married." I looked at my watch. "And I have to go back to my husband right now, actually."
 
-The face he made at that point --- in some ways I savored it. It is look deeper than just disappointment. I think we ladies like to pretend that teasing men with sex is just good fun; that leading a man on and then denying him is just a game. I think we like to think men should be tough, and if they don't get laid tonight, well tough-titties; get over it you big hard emotionless man. It's just sex. But if you had seen this guy's face at that moment, he wasn't sad, upset, angry, or laughing it off... he was *heartbroken*.
+The face he made at that point --- a look deeper than just disappointment. In some ways I savored it. I think we ladies like to believe that teasing men with sex is just good fun; that leading a man on and then denying him is just a game. I think many of us can't let go of the idea that men should be tough, and if they don't get laid tonight, well tough-titties; get over it you big hard emotionless man. After all it's just sex. But if you had seen this guy's face; he wasn't sad, upset, angry, or laughing it off... he was *heartbroken*.
 
 I relented.
 
@@ -67,13 +67,13 @@ I relented.
 
 The prospect of possible future-sex with me was apparently enough to instantly repair his cracked heart, and his face brightened. I decided I liked that. It showed a mature patience on his part. I kissed him with parted lips one last time and scooched my skirt down my legs before picking up my helmet and jacket and walking out the door.
 
-In the parking lot, I threw my leg over my bike, thus undoing the gains of the scooching maneuver I had executed moments before. Mostly, I didn't ride in skirts, because mostly it was way too cold. Even an otherwise mild night could get chilly on a motorcycle quickly, and the breeze blowing over nylons and up my skirt was something that was only comfortable on downright warm nights, as this one was.
+In the parking lot, I threw my leg over my bike, thus undoing the gains of the scooching maneuver I had executed moments before. Mostly, I didn't ride in skirts, because mostly it was way too cold. Even an otherwise mild night could get chilly on a motorcycle quickly, and the breeze blowing over nylons and up my skirt was something that was only comfortable on downright warm nights. Fortunately, this was one of those nights.
 
 I did love the way my skirt looked on my bike when paired with the vintage brown leather motorcycle boots. It was nighttime, so there wasn't anyone around to appreciate it, but I looked fucking amazing on my bike. I have this strong but shapely yellow-and-black plaid jacket with a high collar that collaborated nicely with the short black skirt. And a 3/4s helmet with a amber-tinted full-face shield. There's no helmet law in my state, but I'm a mother for fuck's sake, so I always wear it.
 
-I pulled my gloves on before I hooked the heel of my boot onto the right-side peg. I turned on the fuel and turned the key in its slot to engage the electrical system. My bike has a kick-start, but... not with a skirt. I pushed the starter button and the bike succumbed to the electrical jolt and shook to life like Frankenstein's monster back from the icy dead.
+I pulled my gloves on before I hooked the heel of my boot onto the right-side peg. I turned on the fuel and turned the key in its slot to engage the electrical system. My bike has a kick-start, but with a skirt I use the starter motor it was also equipped it. I pushed the starter button and the bike succumbed to the electrical jolt and shook to life like Frankenstein's monster back from the icy dead.
 
-Up with the side-stand, twist the throttle, and I ripped out of the parking lot, down the street through the quiet, run-down residential neighborhood --- a bit faster than was really appropriate. The bike shook between my legs like an excited puppy, one big cylinder thumping away. I found the on-ramp to the highway and twisted the throttle all the way to the stop, popping through the gears until I was spinning down the empty four-lane with the wind pressing hard up against my whole body.
+Up with the side-stand, twist of the throttle, and I ripped out of the parking lot, down the street through the quiet, run-down residential neighborhood --- a bit faster than was really appropriate. The bike shook between my legs like an excited puppy, one big cylinder thumping away. I found the on-ramp to the highway and twisted the throttle all the way to the stop, popping through the gears until I was spinning down the empty four-lane with the wind pressing hard up against my whole body.
 
 Maintaining a steady pace and wrapped in the surreal sensory white-wash that came with riding a motorcycle at speed, my mind began to wander. I couldn't help but think about the guy in the bar. I wasn't just teasing him. I swear I really did want to fuck him. I'm sure it was not long after I left that he discovered the damp spot on his jeans where my pussy had been. I didn't want to cheat on my husband though. 
 
