@@ -10,7 +10,7 @@
 
 ## Compilation notes:
 * Use pandoc to compile .md into whatever format you like.
-* edited-for-lit version is a reformatted version for posting on Literotica.
+* literotica-version is a reformatted version for posting on Literotica.
 
 ## License:
 * Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International
