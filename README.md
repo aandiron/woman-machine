@@ -4,7 +4,7 @@
 
 ## How to read it:
 * Available to read on Literotica:
-	* ...eventually
+	* https://www.literotica.com/s/the-woman-machine
 * Or, compile from this source code using latex.
 	* (Or just read the markdown, available in source.) 
 
