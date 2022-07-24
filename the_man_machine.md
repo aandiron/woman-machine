@@ -17,25 +17,25 @@ I scoffed. "Try 1400."
 
 "Handle it? I don't need to *handle* anything. My bike takes *care* of me. A motorcycle is a boy's best friend."
 
-"I thought that was diamonds." He looked at me sidelong. "...I'd like to buy you a diamond."
+He looked at me sidelong. "Sure you wouldn't rather have me as a best friend?"
 
-I smirked and held up the back of my hand in front of his eyes with the sharp rock protruding threateningly from my finger. "I'm already married asshole."
+I smirked and held up the back of my hand in front of his eyes with the gold ring bound round my finger. "Careful. I'm a married man you know."
 
-He grinned and lifted his half-finished beer to his lips. My married status did not prevent the flash of an image from entering my mind: of those lips, gently parted and wetly touching my nipples.
+He grinned and lifted his half-finished beer to his lips. My married status did not prevent the flash of an image from entering my mind: of those lips, gently parted and wetly rounding the end of my cock.
 
-He was exactly my type: what I liked to think of as "upscale-redneck." Clearly from country roots, but just as clearly he had made good on his looks and intelligence. The primary piece of evidence: his mid-five-figure bike leaning in the parking lot that he had shortly before pointed out to me. Beyond his bike, he was also dressed extremely well. Like a biker for sure, but if, like me, you knew the subtle differences between the gear of some back-woods custom-piped-riding overweight grease-monkey and the subtle refinements of someone who had steeped themselves in the motorcycle pastime without being sucked in by the trappings of faux-bondage wear and un-backed claims of American bike exceptionalism, then it was plain to see this guy was not just out for an evening bar-crawl with The Snakes --- or whatever other lamely fake-tough name the bike gang that was making so much noise on the other side of the bar had chosen for themselves. For one thing, he clearly favored the more traditional look of waxed cotton rather than black leather. He wore chaps --- seriously and without irony --- the tan color of the stiff cotton contrasting nicely with the heavy black duck jeans underneath. He had on a black button-down shirt made of a heavy wool material, and hanging on the back of his seat was a waxed-cotton motorcycle jacket that looked so heavy I wasn't sure how long that flimsy stool he sat on would support it. It, like the chaps, was worn, cracked, and oil-blackened with use. I had something of a longing to run my hand over that material. I wanted to feel that rough, tough, filthy cloth against my soft skin.
+He was exactly my type: what I liked to think of as "upscale-redneck." Clearly from country roots, but just as clearly he had made good on his looks and intelligence. The primary piece of evidence: his mid-five-figure bike leaning in the parking lot that he had shortly before pointed out to me. Beyond his bike, he was also dressed extremely well. Like a biker for sure, but if, like me, you knew the subtle differences between the gear of some back-woods custom-piped-riding overweight grease-monkey and the subtle refinements of someone who had steeped themselves in the motorcycle pastime without being sucked in by the trappings of faux-bondage wear and un-backed claims of American bike exceptionalism, then it was plain to see this guy was not just out for an evening bar-crawl with The Scorpions --- or whatever other lamely fake-tough name the bike gang that was making so much noise on the other side of the bar had chosen for themselves. For one thing, he clearly favored the more traditional look of waxed cotton rather than black leather. He wore chaps --- seriously and without irony --- the tan color of the stiff cotton contrasting nicely with the heavy black duck jeans underneath. He had on a black button-down shirt made of a heavy wool material, and hanging on the back of his seat was a waxed-cotton motorcycle jacket that looked so heavy I wasn't sure how long that flimsy stool he sat on would support it. It, like the chaps, was worn, cracked, and oil-blackened with use. I had something of a longing to run my hand over that material. I wanted to feel that rough, tough, filthy cloth against my skin.
 
 I sipped my own beer, and blew thoughtlessly on the head. I looked up at him.
 
 He set his beer slowly down on the bar. "Well, why am I talking to you if you are already married?"
 
-"Wow, you really are an asshole, aren't you? You think because I'm married I can't make new friends in a bar? New male friends? Are you some troglodyte who thinks women are men's property? You think I'm owned by my husband?"
+"What, you think marriage is about property or something? You think I'm owned by my husband?"
 
-"Take it easy Ms. Steinem. I'm just trying to advance the conversation." 
+"Take it easy. I'm just trying to advance the conversation." 
 
 I smiled at him. "You mean advance it past the point where I told you that I'm married?"
 
-"Typically in a situation like this, if a woman is making a point of the fact that she's married, usually it is a signal to back off." He turned from me and faced toward the bar. 
+"Typically in a situation like this, someone making a point of the fact that they're married is usually is a signal to back off." He turned from me and faced toward the bar. 
 
 "So why aren't you backing off?"
 
@@ -43,54 +43,52 @@ I smiled at him. "You mean advance it past the point where I told you that I'm m
 
 I swirled the remainder of my beer in its glass and looked at the sharp line of his jaw, his Adam's apple wafted up and down as he swallowed. "Why not?" I pressed.
 
-Still without looking at me he said, "because you're the most attractive woman in this dive, and I only want to talk to the most attractive woman here."
+Still without looking at me he said, "because you're the most attractive guy in this dive, and I only want to talk to the most attractive person here."
 
 I put my glass down and leaned toward him. My hand glided to a perch on the rough material covering his knee. It occurred to me that with the heavy gear he was wearing he might not even feel my touch. "Just talk?"
 
-Now he swiveled to look at me. "OK, I want to fuck the most attractive woman in this dive."
+Now he swiveled to look at me. "OK, I want to fuck the most attractive guy in this dive."
 
-I locked my eyes on his and slid forward, slightly hiking up my short black skirt and spreading my legs to straddle his lap. I lay my hands on either side of his face, and guided him to a wet kiss.
+I locked my eyes on his and slid forward, spreading my legs so my knees interlocked with his. I lay one hand on the back of his head, and guided him to a wet kiss.
 
-His big hands advanced up my thighs and came to rest on my hips. His lips were as soft as I imagined them. I left them wet, dragging his lower lip lightly between my teeth. I put my head down to nuzzle his neck, and I could feel him breathing deeply in my hair washing over his face.
+One of his big hands advanced up my thigh and came to rest on my hip. His lips were as soft as I imagined them. I left them wet, dragging his lower lip lightly between my teeth. I put my head down to nuzzle his neck, and I could feel him breathing deeply against my own neck.
 
-I thrust my hips forward against him, and guiding me with his hands he helped me find the hard bulge in his jeans. Its presence was obvious even through the thick material. I rolled my hips back and forth, crushing my clit up against his rock. The bar was not exactly well-lit, but it was certain that many people --- maybe everyone in the place --- was sneaking sidelong, furtive glances in our direction, jealously wishing they were themselves the hottest couple in the bar making out in front of the dozens of dirty bikers in "The Snakes" (or whatever) and their associated hangers-on.
+I moved my hand up the inside of his muscled leg and found the hard bulge in his jeans. Its presence was obvious even through the thick material. My fingers slid up and down, finding the edges of the thing hidden there. The bar was not exactly well-lit, but it was certain that many people --- maybe everyone in the place --- was sneaking sidelong, furtive glances in our direction, jealously wishing they were themselves the hottest couple in the bar making out in front of the dozens of dirty bikers in "The Scorpions" (or whatever) and their associated hangers-on.
 
-I fake-fucked him in that foul bar, grinding against his cock until he was so hard that I thought he might be in danger of cumming right there. My lips found his ear, and I moaned softly so that only he could hear. And I said, "this is what it would be like if I were fucking you."
+I undid his fly, and slid my hand inside. With my hand inside, I took his cock and felt the warmth and throbbing hardness of it against my palm. I kissed him while I hand-fucked his dirty dock in that foul bar until he was so hard that I thought he might be in danger of cumming right there. My lips found his ear, and I moaned softly so that only he could hear. And I said, "I'd make you cum if I were fucking you."
 
 He pulled his head back and caught my eye. "I want to put my cock inside you."
 
 I leaned back. I put my hand on his chest and pushed back. I stepped back. "I told you. I'm married." I looked at my watch. "And I have to go back to my husband right now, actually."
 
-The face he made at that point --- it was a look deeper than just disappointment. In some ways I savored it. I think we ladies like to believe that teasing men with sex is just good fun; that leading a man on and then denying him is just a game. I think many of us can't let go of the idea that men should be tough, and if they don't get laid tonight, well tough-titties; get over it you big hard emotionless man. After all it's just sex. 
-
-But if you had seen this guy's face; he wasn't sad, upset, angry, or laughing it off... he was *heartbroken*.
+The face he made at that point --- it was a look deeper than just disappointment. In some ways I savored it. But if you had seen this guy's face; he wasn't sad, upset, angry, or laughing it off... he was *heartbroken*.
 
 I relented.
 
 "Look," I said pulling a pen from my jacket and writing on a square napkin, "here's my number. Give me a call sometime, and maybe we can make another dive bar insane with lusty jealousy."
 
-The prospect of possible future-sex with me was apparently enough to instantly repair his cracked heart, and his face brightened. I decided I liked that. It showed a mature patience on his part. I kissed him with parted lips one last time and scooched my skirt down my legs before picking up my helmet and jacket and walking out the door.
+The prospect of possible future-sex with me was apparently enough to instantly repair his cracked heart, and his face brightened. I decided I liked that. It showed a mature patience on his part. I kissed him with parted lips one last time and zipped up my vest before picking up my helmet and walking out the door.
 
 In the parking lot, I stopped for a moment to leer at my machine. The glint of the sodium lights reflected off the oily black curve of the fuel tank. 
 
 I love my bike. 
 
-It's an older model --- soon to move from 'classic' status to 'vintage' --- but I had rebuilt most of it at some point. I had stripped it down, cafe racer style, with the fenders removed and a thin padded plank of a seat. All the unnecessary bits of trim, decoration, and logos had been removed, and the engine had been left exposed in a way that one could almost understand it as a model that showed the basics of how an internal combustion engine works. The one cylinder stood up rigidly in the middle of the bike. For some reason it always reminded me of the bicep of some body builder under tension in a flex position. 
+The very very best of this golden age of sport motorcycles we live in. If performance metrics were your thing, my motorcycle could beat the pants off any supercar costing half a million dollars or more on any metric you cared to name: acceleration, braking, cornering. Cars are for people who understand nothing but status. Bikes are for people who wanted *experiences*. But putting aside its performance, my bike had a long and lithe muscular look that touched me every time I looked at it. Like all modern bikes, the guts were hidden away deep down inside, and it was dressed up with a sleek skin that was designed to split the atmosphere. The shape of it melded with the riders body so man and machine became one object. There's nothing like a motorcycle.
 
-I threw my leg over the seat, thus undoing the gains of the scooching maneuver I had executed moments before. Mostly, I didn't ride in skirts, because mostly it was way too cold. Even an otherwise mild night could get chilly on a motorcycle quickly, and the breeze blowing over nylons and up my skirt was something that was only comfortable on downright warm nights. Fortunately, this was one of those nights.
+I threw my leg over the seat, admittedly with a touch of vanity I suspected I must have looked good doing that --- if anyone had been there to see me. I was wearing tight black leather pants with a white button down shirt and a leather vest over that. I have a black full-face helmet with a pitch black shield. There's no helmet law in my state, and most of the "loud pipes save lives" folks don't wear them, but I always thought it was insanity to not wear a full-face helmet on a sport bike. If for nothing else than to keep the bug-slaughtering mechanism from being your face.
 
-I did love the way my skirt looked when paired with my vintage brown leather motorcycle boots. It was nighttime, so there wasn't anyone around to appreciate it, but I looked fucking amazing on my motorcycle. I have this tough but shapely yellow-and-black plaid jacket with a high collar that collaborated nicely with the short black skirt. And a 3/4s helmet with a amber-tinted full-face shield. There's no helmet law in my state, but I'm a mother for fuck's sake, so I always wear it.
+I pulled my gloves on before I hooked the heel of my boot onto the right-side peg. I turned on the fuel and turned the key in its slot to engage the electrical system. I pushed the starter button. The engine succumbed to the electrical jolt and shook to life like Frankenstein's monster back from the icy dead.
 
-I pulled my gloves on before I hooked the heel of my boot onto the right-side peg. I turned on the fuel and turned the key in its slot to engage the electrical system. My bike has a kick-start as an alternate starting option, but... not in a skirt. I pushed the starter button. Succumbing to the electrical jolt, the engine shook to life like Frankenstein's monster back from the icy dead.
+Up with the side-stand, twist of the throttle, and I ripped out of the parking lot, down the street through the quiet, run-down residential neighborhood --- a bit faster than was really appropriate. The machine shook between my legs like a racing hound waiting on the gate. I found the on-ramp to the highway and twisted the throttle only part way open, popping through the gears until I was spinning down the empty four-lane with the wind pressing hard up against my whole body.
 
-Up with the side-stand, twist of the throttle, and I ripped out of the parking lot, down the street through the quiet, run-down residential neighborhood --- a bit faster than was really appropriate. The machine shook between my legs like an excited puppy, one big cylinder thumping away. I found the on-ramp to the highway and twisted the throttle all the way to the stop, popping through the gears until I was spinning down the empty four-lane with the wind pressing hard up against my whole body.
-
-Maintaining a steady pace and wrapped in the surreal sensory white-wash that came with riding a motorcycle at speed, my mind began to wander. I couldn't help but think about the guy in the bar. I wasn't just teasing him. I swear I really did want to fuck him. I'm sure it was not long after I left that he discovered the damp spot on his jeans where my pussy had been. But I also didn't really want to cheat on my husband. 
+Maintaining a steady pace and wrapped in the surreal sensory white-wash that came with riding a motorcycle at speed, my mind began to wander. I couldn't help but think about the guy in the bar. I wasn't just teasing him. I swear I really did want to fuck him. He must have know that, I mean I was holding his cock in my hand for chrissake. But I also didn't really want to cheat on my husband. 
 
 Or maybe I did. 
 
 But if I did, I was sure I wanted it to be something more than just a quick fling; more than just some hot guy I picked up in a shitty bar.
 
+[edited to here]
+ 
 Still, I doubted my own approach. Maybe I should have gone for it. I thought about what could have happened. I could have led him to the parking lot to show him my bike. And out in those cross-lit shadows I could have stepped over the bike and offered to take him for a quick spin --- to show him what that little thumper engine could do. And then when he was up on the pegs behind me, I could have hesitated, balancing the bike between my legs, stretching my shoulders back, pressing my body against him.
 
 He might have asked if we were going to go, and I would have responded by moving my hips towards him. His hands would have come forward and lay on top of my thighs, and he would have slid his palms upward, his hands moving up under the hem of my skirt, up until he was lifting it over my ass. And at that point his doubts would have dissipated because I would have leaned forward until my breasts were nearly resting on the curve of the fuel tank, and my hips would have come up. His hand between my legs would feel me wet and waiting. Out with his cock, his feet return to the ground, and he would have slipped into me from behind, fucking me hard while I was splayed out over my sweet motorcycle.
