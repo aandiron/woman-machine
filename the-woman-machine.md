@@ -5,13 +5,13 @@
 
 ----------------------------------------
 
-"Your bike out there... single cylinder huh? What is it... 400ccs?"
+"Your bike out there... old single cylinder huh? What is it... 500ccs?"
 
-"500."
+"Yeah, that's right."
 
-"500. Can you handle a bike that size?"
+"It's sometimes hard to find a mechanic to work on those older bikes. You take care of it yourself?"
 
-"Handle it? I don't need to *handle* anything. My bike takes *care* of me. A motorcycle is a girl's best friend."
+"Take care of it? My bike takes care of *me*. A motorcycle is a girl's best friend."
 
 "I thought that was diamonds." He looked at me sidelong. "...I'd like to buy you a diamond."
 
